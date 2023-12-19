@@ -1,2 +1,2 @@
-21.30
+21:30
 Torneo por copa de oro
