@@ -1,3 +1,1 @@
-21:00 Torneo por copa de oro
-22:00 Torneo de plantes
-23:00 Gran evento "mata al boss"
+Bienvenido a la comunidad de Nejhoz, este es el servicio de mensajería que tendremos los administradores para comunicar todo tipo de noticia o evento del día.
